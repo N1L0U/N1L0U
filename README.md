@@ -1,16 +1,18 @@
-## Hi there 👋
+<h1 align="center">𓇼𓏲*ੈ✩‧₊˚🎐</h1>
 
-<!--
-**N1L0U/N1L0U** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+    <img width="200" src="https://s3.getstickerpack.com/storage/uploads/sticker-pack/genshin-impact-nilou/sticker_2.png?4d5298f4b254b36c673e13c39a7713c2" alt="Nilou image">
+</p>
+ 
+<p align="center">
+♡  She / They !!  ; Minor !
+</p>
 
-Here are some ideas to get you started:
+<p align="center">
+✧ ︴ Feel free to C + H idm! ~ Semi-afk most of the time or offtab 
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+✧ Socials: WIP / Coming soon ~
+</p>
+
