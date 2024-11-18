@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-✧ ︴ Feel free to C + H idm! ~ Semi-afk most of the time or offtab 
+✧ ︴ Feel free to C + H i don't bite ! ~ Semi-afk most of the time or offtab 
 </p>
 
 <p align="center">
