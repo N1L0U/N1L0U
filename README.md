@@ -16,4 +16,4 @@
 ✧ Socials: WIP / More coming soon ~
 </p>
 
-[Ata!!](https://n1l0u.atabook.org/)  [](url)
+
