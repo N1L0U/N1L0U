@@ -13,5 +13,7 @@
 </p>
 
 <p align="center">
-✧ Socials: WIP / Coming soon ~
+✧ Socials: WIP / More coming soon ~
 </p>
+
+[Ata!!](https://n1l0u.atabook.org/)  [](url)
