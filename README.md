@@ -12,8 +12,5 @@
 ✧ ︴ Feel free to C + H ! I don't bite ~ Semi-afk most of the time or offtab 
 </p>
 
-<p align="center">
-✧ Socials: WIP / More coming soon ~
-</p>
 
 
