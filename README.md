@@ -12,5 +12,9 @@
 ✧ ︴ Feel free to C + H ! I don't bite ~ Semi-afk most of the time or offtab 
 </p>
 
+<p align="center">
+──── ✦ ────
+</p>
 
 
+![Visitors](https://komarev.com/ghpvc/?username=N1L0U&color=a7c3db)
