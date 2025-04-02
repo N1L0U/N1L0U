@@ -5,11 +5,11 @@
 </p>
  
 <p align="center">
-♡  She / They !!  ; Minor !
+✧  She / They !!  ; Minor !
 </p>
 
 <p align="center">
-✧ ︴ Feel free to C + H ! I don't bite ~ Semi-afk most of the time or offtab 
+✦ ! Please C+H ! i don't mind! oftb / busy / gaming most of the time!
 </p>
 
 <p align="center">
