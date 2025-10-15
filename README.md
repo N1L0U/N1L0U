@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-✦ ! Please C+H ! i don't mind! oftb / busy / gaming most of the time!
+✦ ! Offtab / busy most of the time! Please be patient with me!
 </p>
 
 <p align="center">
