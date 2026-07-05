@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-✦ ! Offtab / busy most of the time! Please be patient with me!
+✦ ! Offtab / busy most of the time!
 </p>
 
 <p align="center">
